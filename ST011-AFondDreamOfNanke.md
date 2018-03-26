@@ -6,6 +6,7 @@
 * http://readytochina.blogspot.com/2012/11/chinese-idiom-stories-nanke-dream.html
 * Lo, Yuchia. "Nanke Yimeng Menghonglou: Ximen Honglou Nanguangchang de “Nantong Shimin Kongjian”[Living Dreams on Ximen Red House Square: Toward a Civic Space of the Gay Community in Taipei]." *Unpublished master’s thesis, Graduate Institute of Journalism, National Taiwan University*(2010).
 * Zhi-zheng, M. A. "Reflections on the Idea of Fate [J]." *Journal of Zhejiang University (Humanities and Social Sciences)* 5 (2001): 018.
+* http://readytochina.blogspot.com/2012/11/chinese-idiom-stories-nanke-dream.html
 
 ### summary of the story
 In Tang Dynasty, Chun Yufen, on his birthday, got drunk under a tree, near an ant nest. But he dreams about a fantastic experience for the following 20 years including becoming the emperor, marrying the princess, and leading the troops. When he woke up, he finds out it is just a dream.
