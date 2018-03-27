@@ -18,7 +18,7 @@ To better enjoy this future story corpus, you can search through the contents bl
 
 
 
-Last but not least, I want to show special thanks to Professor Kate and kindest TA xxx. Thank you for leading me into the amazing world of storytelling. And I do enjoy storytelling! I do wish in my future career, I will continue equipping storytelling as one of my weapons!
+Last but not least, I want to show special thanks to Dr. Kate McDowell and kindest TA Melissa Hahn. Thank you for leading me into the amazing world of storytelling. And I do enjoy storytelling! I do wish in my future career, I will continue equipping storytelling as one of my weapons!
 
 
 
